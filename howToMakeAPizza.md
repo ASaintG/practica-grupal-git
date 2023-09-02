@@ -31,3 +31,16 @@
 4. Retira la pizza del horno con cuidado y déjala enfriar durante unos minutos antes de cortarla en porciones y servirla.
 
 ¡Disfruta de tu deliciosa pizza casera de pepperoni! Puedes personalizarla agregando ingredientes adicionales si lo deseas, como pimientos, cebolla o champiñones.
+
+
+ingredientes 
+100 gr. de pepperoni
+100 gr. de salami
+200 gr. de queso mozzarella rallado
+1 lata de tomate triturado
+100 gr. de queso parmesano rallado
+1 base de masa para pizza casera
+Sal
+Pimienta
+Orégano
+Albahaca (opcional)
